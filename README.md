@@ -1,1 +1,2 @@
 # GulabJamun
+Gulab jamun is a dessert often eaten at festivals, birthdays or major celebrations such as marriages, the Muslim celebrations of Eid ul-Fitr and Eid al-Adha, and the Hindu festival of Diwali (the Indian festival of light). There are various types of gulab jamun and every variety has a distinct taste and appearance.
